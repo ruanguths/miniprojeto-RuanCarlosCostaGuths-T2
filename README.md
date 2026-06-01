@@ -1,2 +1,0 @@
-# miniprojeto-RuanCarlosCostaGuths-T2
-
